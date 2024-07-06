@@ -1,0 +1,2 @@
+- Location: Finland
+- Not sure what I'll do with Github, maybe something relating to coding. Who knows. 
